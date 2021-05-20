@@ -1,2 +1,2 @@
-Lee Jejune: 20213057
+Lee Jejune:::20213057
 Kookmin Univ, SW dept
